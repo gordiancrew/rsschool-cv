@@ -1,1 +1,1 @@
-# rsschool-cv
+https://GORDIANCREW.github.io/rsschool-cv/
